@@ -6,9 +6,11 @@
  ⠀⠀ ⠀⠀<img src=https://i.pinimg.com/originals/ae/4c/8b/ae4c8b39351202ba1b9c5cc842316dfc.gif width=120>  ⠀⠀ ⠀⠀hitori  🍃⠀⠀ ⠀⠀they
  <br>
  <br> 
-  ⠀⠀ ⠀⠀i enjoy lots of media and you can mainly find me sitting at 
+  ⠀⠀ ⠀⠀i enjoy lots of things and usually tend to stay to myself,
   <br> 
-   ⠀⠀ ⠀⠀mcyt hill! feel free to send a whisper and say hi if you want
+   ⠀⠀ ⠀⠀but feel free to send a whisper and say hi if you want!
+   <br> 
+   ⠀⠀ ⠀⠀i don't bite and love to make friends ^__^
 
  ---
 
