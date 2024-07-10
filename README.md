@@ -3,7 +3,7 @@
  ⠀⠀ ⠀⠀running through the garden without a care in the world
 <br>
 <br> 
- ⠀⠀ ⠀⠀<img src=https://i.pinimg.com/originals/ae/4c/8b/ae4c8b39351202ba1b9c5cc842316dfc.gif width=120>  ⠀⠀ ⠀⠀hitori  🍃⠀⠀ ⠀⠀they
+ ⠀⠀ ⠀⠀<img src=https://i.pinimg.com/originals/ae/4c/8b/ae4c8b39351202ba1b9c5cc842316dfc.gif width=120>  ⠀⠀ ⠀⠀carmy  🍃⠀⠀ ⠀⠀they
  <br>
  <br> 
   ⠀⠀ ⠀⠀i enjoy lots of things and usually tend to stay to myself,
